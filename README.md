@@ -1,19 +1,19 @@
-# vote for me
+# VOTE for me
 
-## carte blanche
+## Carte blanche
 
 ipo current yr la cs mit conduct panra carte blanche nadakala antha sympo la nama batch pasanga sila peru intern uh vangunanga . but other current yr la nadakala 
 
-nama antha sympo kum initiation kekurom, coz we have man power most influenced dept namma tha so , nama jnrs uh ithunaka benefits aganum
+nama antha sympo kum initiation kekurom, coz we have man power , most influenced dept namma tha, so nama jnrs uh ithula benefit aganum
 
 
 
-## why u need to vote for me for chairman of ITA?
-ita chairman post uh SAMHITA uh MUTEX ah mari sympo uh aprm student oriented session conduct panrathu mattum illa atha uh thandi evolovo pannalam ,ITA chairman college oda 1/3 of the student ku chairman 
+## WHY you need to vote for me for chairman of ITA?
+ITA chairman post uh SAMHITA uh MUTEX ah mari sympo uh aprm student oriented session conduct panrathu mattum illa atha uh thandi evolovo pannalam ,ITA chairman college oda 1/3 of the student ku chairman 
 mela sonathu la en vision na chairman ah iruntha apart from ITA activities ,clg oda legacy activites uh nadaka oru ignition ah irupen. so vote wisely and worthfully
 
 
-## reviving sivarangini
+## Reviving SIVARANJINI
 
 nama 1st yr vanthathula irunthu nama ella fest uh pathurupom but nam witness panatha ore fest sivaranjini 
 
@@ -32,7 +32,7 @@ coz mathavanga kita illathathu namma kita iruka man power athu tha nama SAMIHITA
 
 
 
-## freshman day 
+## FREASHER'S DAY
 
 ita sarbaga freahman nadatha padhum athu new ah enter aga pora red taggers ku mattum athu freshers day ill namkum sethu than
 
@@ -45,15 +45,15 @@ epdiyo session nu sonna yarum  vara matanga cringe ah boomer nu povanga
 atha nama most ah entertainment +information ah pannalam 
 ithula nama irukurapo irutha chairman la panala , namma itha panuvom 
 like a modern day ragging 
-dept jnrs session vaipom on tha basis of 3:1, 3 entertainment session+1 informative session in a month entertainment in the sense
+dept jnrs session vaipom on tha basis of 3:1, 3 entertainment session +1 informative session in a month entertainment in the sense
 online game uh reel panra athu mari
+nama hackerrank coding web design , database challenges athumari pannalam
 
-## infotainment
-nama hackerrank coding web design , database challenges athumari
-
-## sympo transition
+## SYMPO TRANSITION
 
 nama clg oda trademark sympo yara ketalum solrathu SAMHITA antha legacy he oru FEST vibe ku kondu povom
 MUTEX and SAMHITA oru fest week mariye trend set pannuvom like minor events in week days aprm last 2 days mega event ah conduct pannuvom like over all witness ke title tharalam 
 ithu vara paka tha mari mitafest vibe ku promote panrom nama sympo va
 
+
+#### ithulam pannuvom nu ungaluke theriyum ......... 
