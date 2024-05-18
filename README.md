@@ -2,7 +2,7 @@
 
 ## carte blanche
 
-ipo current yr la ce mit conduct panra carte blanche nadakala antha sympo la nama batch pasanga sila peru intern vangunanga . but other current yr la nadakala 
+ipo current yr la cs mit conduct panra carte blanche nadakala antha sympo la nama batch pasanga sila peru intern uh vangunanga . but other current yr la nadakala 
 
 nama antha sympo kum initiation kekurom, coz we have man power most influenced dept namma tha so , nama jnrs uh ithunaka benefits aganum
 
