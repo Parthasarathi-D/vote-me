@@ -34,6 +34,9 @@ coz mathavanga kita illathathu namma kita iruka man power athu tha nama SAMIHITA
 
 ## FREASHER'S DAY
 
+### namma college la last eppo fresher's day nadanthuchu
+https://github.com/Parthasarathi-D/vote-me/assets/141064484/99bc4f53-5e3e-40d4-bf68-b1405e490220
+
 ita sarbaga freahman nadatha padhum athu new ah enter aga pora red taggers ku mattum athu freshers day ill namkum sethu than
 
 clg la enjoy memories ah gain parthe 2 tha oru freashers day innoru farewell athu ITA sarbaga padum
